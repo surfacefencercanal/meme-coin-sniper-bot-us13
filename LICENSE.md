@@ -1,4 +1,4 @@
-# 
+# Get the ultimate meme coin sniper bot with advanced meme coin sniper bot | arbitrage-opportunities + rug-pull-detection. Featuring arbitrage-opportunities and rug-pull-detection,
 
 
 
